@@ -1,3 +1,3 @@
 # Fake-Linux
 fake linux is not going safe
-see: https://dung.ct.ws
+see: https://dungw.rf.gd
